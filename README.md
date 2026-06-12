@@ -1,2 +1,2 @@
 gummy jones beautiful art gallery
-by red rose
+<p> by red rose
