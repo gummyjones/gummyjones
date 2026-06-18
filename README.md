@@ -1,4 +1,4 @@
-HATERS TROLLS AND CREEPS (FOAL CLOPPERS) GET BLOCKED
+HATERS TROLLS PEDOS AND CREEPS (FOAL CLOPPERS) GET BLOCKED
 <p> friends: red rose, storm chaser, bona the wolf, darkest shadow, chair mare, ultimatealicornking02</p>
 <p> gummy jones fanart gallery
 <img width="764" height="539" alt="image" src="https://github.com/user-attachments/assets/c09f7be4-ff1b-4c84-b14b-608ec9325856" />
